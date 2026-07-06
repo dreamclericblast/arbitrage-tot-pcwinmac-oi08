@@ -1,4 +1,4 @@
-# 
+# Ultime arbitrage trading bot plugins for Mac OS | Élite arbitrage trading bot plugins for PC Windows. Featuring pools de liquidité DEX and API d'échange décentralisé — optimized for maximum performance.
 
 
 
